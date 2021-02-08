@@ -1,4 +1,4 @@
-# My Certifications
+# Licenses & Certifications
 
 <p align='center'>
   <a href="#">
